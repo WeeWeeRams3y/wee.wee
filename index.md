@@ -1,4 +1,1 @@
-## Wee.Wee
-
-Wee's art: 
-
+## Ok, this is epic
